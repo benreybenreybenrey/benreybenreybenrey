@@ -8,13 +8,16 @@
 [PronounsPage](https://en.pronouns.page/@benreyvirus)
 [Spacehey](https://spacehey.com/freelancehusbands)
 
-   
+<p align="center">
+  
 💙 ﹐ıllı  he/him # ᶻz﹕
 
-＞＜﹐🔷  mbti ; 20 @ :: 
+＞＜﹐🐕  mbti ; 20 @ :: 
 
- ┆hvy c+h , dnc , int﹒꩜
+ ┆hvy c+h , dnc , int﹒🔷
  
  ┆sign my sp/ata!﹒    ♡
  
 ✦. ⊹ ˚ . benrey/max : 🐇
+
+</p>
