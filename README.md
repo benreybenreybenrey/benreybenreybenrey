@@ -11,7 +11,7 @@
 💙 ﹐ıllı  he/him # ᶻz﹕
 
 <p align="center">
-＞＜﹐🐕  mbti ; 20 @ :: 
+＞＜﹐🐕  infp-t ; 20 @ :: 
   
 <p align="center">
  ┆hvy c+h , dnc , int﹒🔷
