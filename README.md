@@ -16,9 +16,9 @@
 <p align="center">
  ┆hvy c+h , dnc , int﹒🔷
 
- <p align="center">
+<p align="center">
  ┆sign my sp/ata!﹒    ♡
 
- <p align="center">
+<p align="center">
 ✦. ⊹ ˚ . benrey/max : 🐇
 </p>
