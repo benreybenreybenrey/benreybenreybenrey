@@ -14,7 +14,7 @@
 ＞＜﹐🐕  infp-t ; 20 @ :: 
   
 <p align="center">
- ┆hvy c+h , dnc , int﹒🔷
+ ┆hvy c+h , hvy int , dnc﹒🔷
 
 <p align="center">
  ┆sign my sp/ata!﹒    ♡
