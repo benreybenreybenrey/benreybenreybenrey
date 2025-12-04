@@ -9,7 +9,6 @@
 [Spacehey](https://spacehey.com/freelancehusbands)
 
 <p align="center">
-  
 💙 ﹐ıllı  he/him # ᶻz﹕
 
 ＞＜﹐🐕  mbti ; 20 @ :: 
@@ -19,5 +18,4 @@
  ┆sign my sp/ata!﹒    ♡
  
 ✦. ⊹ ˚ . benrey/max : 🐇
-
 </p>
