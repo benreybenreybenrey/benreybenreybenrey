@@ -10,6 +10,7 @@
 
    
 💙 ﹐ıllı  he/him # ᶻz﹕
+
 ＞＜﹐🔷  mbti ; 20 @ :: 
  ┆hvy c+h , dnc , int﹒꩜
  ┆sign my sp/ata!﹒    ♡
