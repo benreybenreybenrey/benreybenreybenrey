@@ -24,4 +24,6 @@
 </p>
 ꒰ ִ ֺ ⊹ @ i block freely ! ⊹ ֺ ִ ꒱
 
-꒰ ִ ֺ ⊹ dni: proship/darkship/lolitas/"maps" aka pedos, zoophiles, homophobic/etc, hh/hb/vivzie apologists, freevance shippers ⊹ ֺ ִ ꒱
+꒰ ִ ֺ ⊹ dni: proship/darkship/lolitas/"maps" aka pedos, zoophiles, homophobic/etc, zionist, shtwt/edtwt/etc, hh/hb/vivzie apologists, freevance shippers ⊹ ֺ ִ ꒱
+
+꒰ ִ ֺ ⊹ iwc/iwec: "fujoshis"/anything along those lines, most of the time you are just sexualizinf/fetishizing gay men! not a fan of that. murder drones/tadc, anything made by that creator, forsaken fandom -- i like yumeshipping but please do not go too crazy with it !! some of you scare me⊹ ֺ ִ ꒱
