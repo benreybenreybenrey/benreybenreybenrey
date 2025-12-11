@@ -26,4 +26,4 @@
 
 ꒰ ִ ֺ ⊹ dni: proship/darkship/lolitas/"maps" aka pedos, zoophiles, homophobic/etc, zionist, shtwt/edtwt/etc, hh/hb/vivzie apologists, freevance shippers ⊹ ֺ ִ ꒱
 
-꒰ ִ ֺ ⊹ iwc/iwec: "fujoshis"/anything along those lines, most of the time you are just sexualizing/fetishizing gay men/women. murder drones/tadc, anything made by that creator, forsaken, deadplate, genshin/honkai fandoms, -- i like yumeshipping but please do not go too crazy with it !! ⊹ ֺ ִ ꒱
+꒰ ִ ֺ ⊹ iwc/iwec: "fujoshis"/anything along those lines, most of the time you are just sexualizing/fetishizing gay men/women. murder drones/tadc, anything made by that creator, forsaken, deadplate, mouthwashing, genshin/honkai fandoms, -- i love yumeshipping but please do not go too crazy with it !! ⊹ ֺ ִ ꒱
