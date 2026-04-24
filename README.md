@@ -24,7 +24,7 @@
 </p>
 ꒰ ִ ֺ ⊹ @ i block freely ! ⊹ ֺ ִ ꒱
 
-꒰ ִ ֺ ⊹ dni: proship/darkship/lolitas/"maps" aka pedos, zoophiles, homophobic/etc, zionist, shtwt/edtwt/etc, hh/hb/vivzie apologists, freevance shippers, grace/forsaken/pressure dev apologists/defenders/supporters & players (I like forsaken characters,  I will never play it again, same goes with pressure and grace HARD DNI.) TADC or gooseworx/glitch supporters(racist, vivzie supporters AND collaborators with a known pedophile aka blackgryph0n, not to mention kingers vas groomer/pedophile allegations, i legit want nothing to do with yall) + if you reduce brokeback mountain to jokes ⊹ ֺ ִ ꒱
+꒰ ִ ֺ ⊹ dni: proship/darkship/lolitas/"maps" aka pedos, zoophiles, homophobic/etc, zionist, shtwt/edtwt/etc, anything to do w gooseworx/glitch or vivziepop. i block freely. ⊹ ֺ ִ ꒱
 
 ꒰ ִ ֺ ⊹ iwc/iwec: "fujoshis"/anything along those lines, most of the time you are just sexualizing/fetishizing gay men/women, forsaken, deadplate, mouthwashing, genshin/honkai fandoms, -- i love yumeshipping but please do not go too crazy with it !! ⊹ ֺ ִ ꒱
 
