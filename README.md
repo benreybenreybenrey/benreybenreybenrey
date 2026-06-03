@@ -11,7 +11,7 @@
 💙 ﹐ıllı  he/him # ᶻz﹕
 
 <p align="center">
-＞＜﹐🐕  infp-t ; 20 @ :: 
+＞＜﹐🐕  infp-t ; 21 @ :: 
   
 <p align="center">
  ┆hvy c+h , hvy int , dnc﹒🔷
